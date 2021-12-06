@@ -1,1 +1,1 @@
-# جعبه‌ابزارِ مطالعاتِ قرآن و بایبل
+# Qur'anic & Biblical Studies Digital Toolbox
